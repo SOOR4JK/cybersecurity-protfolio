@@ -31,4 +31,4 @@ Cybersecurity Analyst and SOC enthusiast with hands-on experience in:
 
 ## Contact
 LinkedIn: www.linkedin.com/in/soor4jk
-TryhachMe: https://tryhackme.com/p/SoorajX11
+TryhackMe: https://tryhackme.com/p/SoorajX11
