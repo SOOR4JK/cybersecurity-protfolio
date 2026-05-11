@@ -30,4 +30,4 @@ Cybersecurity Analyst and SOC enthusiast with hands-on experience in:
 - Cybersecurity Professional Course – Keltron Knowledge Centre
 
 ## Contact
-LinkedIn: Add your LinkedIn here
+LinkedIn: www.linkedin.com/in/soor4jk
